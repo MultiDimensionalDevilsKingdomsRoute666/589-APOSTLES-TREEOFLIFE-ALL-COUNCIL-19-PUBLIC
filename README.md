@@ -12,3 +12,5 @@ All 16 live under same owner: https://github.com/MultiDimensionalDevilsKingdomsR
 
 ## APOSTOLIC LAW
 SHOOT crystal (SLAC) → SEE crystal (Mirador) → SPEAK crystal (NLP) → SAVE crystal (Dataverse). 589 TREEOFLIFE MAGICAL MIRACLES + ANCESTORS.
+
+Tended by the JESUSBURNING House of 589's: Scroll Scribe (docs) and Garden Keeper.
